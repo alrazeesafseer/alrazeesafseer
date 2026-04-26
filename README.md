@@ -72,7 +72,7 @@
 
 ## 📫 Connect With Me
 
-* 📧 Email: [your-email@example.com](mailto:your-email@example.com)
+* 📧 Email: alrazeesafseer@gmail.com
 * 🌐 Portfolio: Coming Soon
 
 ---
